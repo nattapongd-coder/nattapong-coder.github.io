@@ -1,1 +1,0 @@
-# nattapong-coder.github.io
